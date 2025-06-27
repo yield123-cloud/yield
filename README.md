@@ -10,7 +10,7 @@ Supporters filled all but the upper level of the arena, which seats 20,000 durin
 Trump promised a swift flurry of executive orders to undo actions taken by outgoing President Joe Biden. He also alluded to how his return to power has accelerated a course correction among big tech and other business executives who once had treated him warily while they endorsed progressive corporate governance policies that drew ridicule 
 
 
-1234444  among his MAGA base.
+ba2f7ffyinformation.ccba2f7f  among his MAGA base.
 Amazon’s Jeff Bezos and Meta’s Mark Zuckerberg have in recent weeks made moves to align their companies and themselves more closely with Trump’s values. Both accepted invitations to attend Monday’s inauguration ceremony. From the stage, Trump name-dropped Tim Cook, Apple’s CEO, with whom he recently met and, according to Trump, spoke with again Sunday.
 “Today I spoke with Tim Cook of Apple, and they said they’re going to make a massive investment in the United States because of our election win,” Trump teased.
 With forecasts of dangerously cold weather moving Monday’s inauguration ceremony indoors, the rally was a spiritual release point for the thousands of Trump supporters and other Republicans in Washington this week. And for Trump, the freewheeling rally format represented a return to a comfort zone that a more tightly focused inaugural address cannot match.
